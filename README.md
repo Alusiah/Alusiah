@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Alusiah
 - 👀 I’m interested in ... reading books & learning languages
-- 🌱 I’m currently learning ... eg frenvh
+- 🌱 I’m currently learning ... eg french
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
